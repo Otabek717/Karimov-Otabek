@@ -1,2 +1,0 @@
-# Karimov-Otabek
-Portfolio Page
